@@ -1,4 +1,5 @@
-## woogh09
+## woogh09 :)
+대구과학고등학교 38기 1학년 3반 우가희(Woo Gahee)입니다 :) 
 
 <!--
 **woogh09/woogh09** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
